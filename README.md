@@ -1,0 +1,1 @@
+# Gradyan-Inisle-Dogrusal-Regresyon
